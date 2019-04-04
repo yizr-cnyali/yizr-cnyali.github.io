@@ -1,1 +1,0 @@
-# yizr-cnyali.github.io
